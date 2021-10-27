@@ -1,1 +1,1 @@
-# curriculo-lauragoulart
+https://laurangoulart.github.io/curriculo/
